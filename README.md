@@ -1,7 +1,7 @@
-很擼吧 最新地址 最後更新時間 (2020.03.20)
+很擼吧 最新地址 最後更新時間 (2020.03.21)
 # 
 
-D1：https://www.66nee.com
+D1：https://www.66ree.com
 
 D2：https://www.66vse.com
 
