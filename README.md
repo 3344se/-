@@ -1,9 +1,9 @@
-很擼吧 最新地址 最後更新時間 (2020.03.21)
+很擼吧 最新地址 最後更新時間 (2020.04.20)
 # 
 
-D1：https://www.66ree.com
+D1：https://www.66kse.com
 
-D2：https://www.66vse.com
+D2：https://www.66ree.com
 
 # 
 如以上地址都無法訪問，請用郵箱向apple2014x@gmail.com發任意消息，即可獲取最新地址！
