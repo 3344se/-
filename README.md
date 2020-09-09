@@ -1,11 +1,9 @@
 很擼吧 最新地址 最後更新時間 (2020.08.31)
 # 
 
-D1：https://www.88vse.com (移动网络测试)
+D1：https://www.88vse.com (移动/电信/联通)
 
-D1：https://www.88ase.com (电信/联通)
-
-D2：https://www.88nee.com (电信/联通)
+D2：https://www.88ase.com (电信/联通)
 
 # 
 如以上地址都無法訪問，請用郵箱向apple2014x@gmail.com發任意消息，即可獲取最新地址！
